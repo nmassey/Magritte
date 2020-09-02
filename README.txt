@@ -1,1 +1,1 @@
-bitmap
+editor,
