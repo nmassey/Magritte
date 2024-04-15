@@ -1,1 +1,1 @@
-and
+compared
