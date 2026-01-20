@@ -1,1 +1,1 @@
-code
+school
