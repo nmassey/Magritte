@@ -1,1 +1,1 @@
-on
+Friday
